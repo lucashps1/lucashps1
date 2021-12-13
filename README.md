@@ -1,5 +1,15 @@
-### Hi there 👋
+Olá galerita! (👍≖‿‿≖)👍 
 
+
+💻  Cursando: Análise e Desenvolvimento de Sistemas. ✍
+ 
+ Bora estudar e ficar monstrão? (͠≖ ͜ʖ͠≖)👌
+         
+   #NeverStopLearning 💪(◡̀_◡́҂)
+   
+   
+  Manda Jobs! (っ ͡❛ ͜ʖ ͡❛)っ🎔  https://www.linkedin.com/in/lucas-pontes-506664b2/
+ 
 <!--
 **lucashps1/lucashps1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
